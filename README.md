@@ -1,1 +1,0 @@
-# StructuredData_Assignment_SibylJatoe
